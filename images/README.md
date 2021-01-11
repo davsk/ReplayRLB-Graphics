@@ -1,1 +1,1 @@
-# Images in Farge Format
+# Images in Large Format
